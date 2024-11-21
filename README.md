@@ -2,7 +2,7 @@
 - 👀 I’m interested in Video Games
 - 🌱 I’m currently learning C programming
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me email: ravimundaofficial@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm Spider-Man
 
