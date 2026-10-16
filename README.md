@@ -68,6 +68,7 @@ I value curiosity, consistency, and learning from mistakes.
 - GitHub: [@Ravi-Munda](https://github.com/Ravi-Munda)
 - Email: ravimundaofficial@gmail.com
 - LinkedIn: https://www.linkedin.com/in/ravi-munda-4221ab272/
+- Instagram: https://www.instagram.com/ravi_____munda/
 
 ---
 
